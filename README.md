@@ -1,4 +1,4 @@
-[![MasterHead](https://giphy.com/gifs/computador-gu-tecnology-bGgsc5mWoryfgKBx1u)]
+[![MasterHead](https://bit.ly/3Sh8xy7)]
 
 
 <h1 align="center">Hi 👋, I'm Md Shaharia Hossen</h1>
